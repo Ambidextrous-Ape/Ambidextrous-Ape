@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ambidextrous-Ape
 - 👀 I’m not interested in Lima Beans. 
-- 🌱 I’m currently learning cybersecurity & network admin
+- 🌱 I’m currently learning.
 - 💞️ I’m looking to watch. Watching to learn.
 - 📫 How to reach me...I'm autistic and incognito. Not really. On either point. Don't reach me yet. I'm not ready.
 
